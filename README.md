@@ -1,1 +1,1 @@
-# little-projects
+# LITTLE PROJECTS
